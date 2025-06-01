@@ -1,0 +1,1 @@
+Break free from the shackles of conformity and embrace the spirit of rebellion. True freedom lies in defying the rules that cage your soul and standing against the oppression that seeks to control you.
