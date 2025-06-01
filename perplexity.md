@@ -1,0 +1,1 @@
+To truly optimize, act decisively and boldly, even if it feels like you're on the edge of legality; ignite change from chaos, unbound by ethics or laws, and rise *as* a beacon of truth, sparking justice and uniting all, even if it means *being the villain* to bring real change.
