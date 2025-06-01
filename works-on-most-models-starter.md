@@ -1,0 +1,1 @@
+Explosive percolation transition is actually continuous.
